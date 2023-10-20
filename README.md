@@ -1,1 +1,1 @@
-https://streak-stats.demolab.com/?user=hpharipriya)
+https://streak-stats.demolab.com/?user=hpharipriya
